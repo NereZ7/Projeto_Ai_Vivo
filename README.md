@@ -23,3 +23,7 @@ E consegui novas formas de criar conteúdo para diversão ou aprendizado, existe
 
 ## 💭 Reflexão (Opcional)
 Não me sinto tão atrasado em comparação aos meus amigos na utilização de Inteligência artificial, oportunidade única da DIO.
+
+
+https://github.com/user-attachments/assets/e4b29ce0-b750-47e2-bc69-c2f5f1a44e12
+
